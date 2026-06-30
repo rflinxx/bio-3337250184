@@ -1,4 +1,4 @@
-# Bio: Muhamad Fahri Indra Saputra
+# Bio: M.Nur Raflin Tiasip
 
 - NIM: 3337250184
 - Hobi: Sepak Bola
